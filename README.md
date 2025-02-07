@@ -17,7 +17,7 @@ Feel free to reach out for collaborations, research discussions, or just to say 
 
 ---
 
-![GIF Placeholder](https://media.giphy.com/media/QTfX9Ejfra3ZmNxh6B/giphy.gif](https://pin.it/6JP3yOhD5))
+![GIF Placeholder](https://pin.it/6JP3yOhD5)
 
 ---
 
