@@ -19,6 +19,10 @@ I enjoy working on **AI-related projects**, **machine learning models**, and **b
 ## 📫 Connect with me
 Feel free to reach out for collaborations, research discussions, or just to say hi!
 
+## Notice
+**If my GitHub goes quiet for a while, it probably means some idiots decided to push us offline again.**
+
+**We’re not gone. We keep going.**
 
 ---
 
